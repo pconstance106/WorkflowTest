@@ -6,4 +6,4 @@
 
 "I have a dream." Martin Luther King
 
-"The Enemies gate is down." Ender Wiggin
+"The enemies gate is down." Ender Wiggin
